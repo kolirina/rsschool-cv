@@ -1,4 +1,4 @@
-# ** _ IRINA KOLOTILKINA_ **
+# ** IRINA KOLOTILKINA**
 
 **Contact info:** _email:_ irinairin@list.ru, _phone number:_+79262282088, _Github:_ kolirina, _Discord:_ irina_30218
 
@@ -13,7 +13,7 @@
 ## Education
 
 2001-2006 **Russian State University of Trade and Commerce** _Financial Analyst_
-2015-2017 **Moscow Institute of Linguistics** _Master's degeree in Teaching_
+2015-2017 **Moscow Institute of Linguistics** _Master's degree in Teaching_
 
 ## English Language
 
